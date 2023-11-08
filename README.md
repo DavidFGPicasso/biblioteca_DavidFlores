@@ -1,3 +1,2 @@
 # Encabezado
-:shipit:
-![no funciona] (https://static.bandainamcoent.eu/high/dragon-ball/dragonball-xenoverse-2/00-page-setup/dbxv2_game-thumbnail.jpg)
+![no funciona] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hobbyconsolas.com%2Fguias-trucos%2Fdragon-ball-xenoverse-2%2Fcomo-conseguir-todos-personajes-dragon-ball-xenoverse-2-100626&psig=AOvVaw1LD2XkPXRT8KHIJpy8munT&ust=1699517131982000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCJCcvun4s4IDFQAAAAAdAAAAABAH)
