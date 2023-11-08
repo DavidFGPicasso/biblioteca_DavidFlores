@@ -1,2 +1,2 @@
 # Encabezado
-![no funciona] (https://static1.thegamerimages.com/wordpress/wp-content/uploads/2023/04/xenoverse2goku.jpg)
+![no funciona] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.es%2Fpin%2F627830004278275144%2F&psig=AOvVaw1LD2XkPXRT8KHIJpy8munT&ust=1699517131982000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCJCcvun4s4IDFQAAAAAdAAAAABAe)
