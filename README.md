@@ -1,3 +1,3 @@
 # Encabezado
 :+1:
-![no funciona] (https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/84dc13b7-a2e7-4b45-83ec-311e72e82900/dexf2r9-c9786a35-d99b-41a7-bdf7-60509607dafc.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg0ZGMxM2I3LWEyZTctNGI0NS04M2VjLTMxMWU3MmU4MjkwMFwvZGV4ZjJyOS1jOTc4NmEzNS1kOTliLTQxYTctYmRmNy02MDUwOTYwN2RhZmMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.KYMeSkEH36hQVbRp6MDszuAyGTaNfJ8djJ7LF3opssM)
+![no funciona] (https://is1-ssl.mzstatic.com/image/thumb/Music114/v4/e5/8e/67/e58e67ec-e8f5-5435-2150-8350b641d083/5059033243767_cover.jpg/400x400cc.jpg)
